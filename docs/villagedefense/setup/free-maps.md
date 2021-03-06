@@ -38,3 +38,14 @@ Link to all maps of our minigames [at GDrive](https://drive.google.com/open?id=1
 
 ![](https://i.imgur.com/GMmTz1b.jpg)
 
+### Mushroom <a id="mushroom"></a>
+
+**Download link:** [Mega](https://mega.nz/folder/Zo5jWYyQ#eva37vtsdIscuTw3NTCXqA)
+
+**Preferred max players:** 12
+
+**Coordinates:** 1, 124, 8
+
+**Screenshots:**
+
+![](https://flic.kr/p/2kHw47n)
