@@ -36,3 +36,12 @@ Link to all maps of our minigames [at GDrive](https://drive.google.com/open?id=1
 
 ![](https://i.imgur.com/vfWs9j4.jpg)
 
+### Dragon
+
+**Download link:** [Mega](https://mega.nz/folder/ZtQRXC5Y#nhDbwJDh4Df7Ho76ydkMEQ)
+
+**Coordinates:** 2156, 173, -3
+
+**Screenshots:**
+
+![](https://flic.kr/p/2kHugSm)
