@@ -36,3 +36,14 @@ Link to all maps of our minigames [at GDrive](https://drive.google.com/open?id=1
 
 ![](https://i.imgur.com/vfWs9j4.jpg)
 
+### Dragon <a id="dragon"></a>
+
+**Download link:** [Mega](https://mega.nz/folder/ZtQRXC5Y#nhDbwJDh4Df7Ho76ydkMEQ)
+
+**Preferred max players:** 16
+
+**Coordinates:** 2157, 173, 14
+
+**Screenshots:**
+
+![](https://flic.kr/p/2kHzFDT)
