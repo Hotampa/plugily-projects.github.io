@@ -46,4 +46,4 @@ Link to all maps of our minigames [at GDrive](https://drive.google.com/open?id=1
 
 **Screenshots:**
 
-![](https://flic.kr/p/2kHzFDT.png)
+![](https://cdn.discordapp.com/attachments/607914966951133195/727562010308640868/unknown.png)
